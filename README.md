@@ -1,0 +1,2 @@
+# sukabaca
+baca buat pintar
